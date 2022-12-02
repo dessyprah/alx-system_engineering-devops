@@ -1,1 +1,1 @@
-8. James Bond
+6. Multiple permissions
