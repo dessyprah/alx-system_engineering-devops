@@ -1,1 +1,1 @@
-13. We are symbols, and inhabit symbols
+7. Betty in my first directory
