@@ -1,1 +1,1 @@
-11. Don't just count your directories
+13. Being unique is better than being perfect
